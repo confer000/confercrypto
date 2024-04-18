@@ -1,0 +1,2 @@
+# confercrypto
+List of Airdrops
